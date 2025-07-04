@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @impana2507
 - 👀 I’m interested in exploring myself 
-- 🌱 I’m currently learning 3rd year engineering 
+- 🌱 I’m currently Graguated 
 - 💞️ I’m looking to collaborate on iit company
 - 📫 How to reach me ...
 
